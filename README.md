@@ -10,4 +10,6 @@ Meu nome é Emile Caroline
 
 00001110279267SP@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-BR/view/snowball-bunny-carrot-cute-bunny-looking-around-gif-24073322)
+@emilecarolin3
+
+![](https://media1.tenor.com/m/YwCoF_AO0wQAAAAC/inside-out-joy.gif)
